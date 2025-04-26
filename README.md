@@ -1,4 +1,4 @@
-# Special-info
+# Special-info for the commisioner of police Gujarat cp-ahd@gujarat.gov.in
 
 20 09 2024
 Profile of a Terrorist
